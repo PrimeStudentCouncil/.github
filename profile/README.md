@@ -25,6 +25,6 @@ Yostar、Nexon、Nexon Gamesとは関連がありません。
 
 
 ##  ガジェットです
-BlueArchive LOGO 生成ツールです (https://https://logo.bluearchive.cc/)
+BlueArchive LOGO 生成ツールです (https://logo.bluearchive.cc/)
 
 
