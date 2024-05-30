@@ -1,7 +1,5 @@
 
-![連邦学生会です](https://static.bluearchive.cc/Picture/BG_ReceptionRoom.jpg)
-
-![連邦学生会です](https://static.bluearchive.cc/Picture/BG_CS_PR_01.jpg)
+![連邦学生会です](https://static.bluearchive.cc/Picture/BG_CS_PR_06.jpg)
 
 ![連邦学生会です](https://static.bluearchive.cc/Picture/cclogo.png)
 ## 連邦学生会へようこそ、先生!
